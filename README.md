@@ -1,1 +1,1 @@
-# .github
+### Discover The Umbrella Times: Your sanctuary of positivity. Join our community for a curated selection of uplifting stories that celebrate kindness, resilience, and compassion. Experience the joy of starting your day with a smile and restore your faith in humanity. Subscribe today and let the power of positivity brighten your inbox. The world is filled with incredible stories—choose to see the positive side with The Umbrella Times.
